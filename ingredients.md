@@ -1,0 +1,2 @@
+ingridients used are:
+2 cups plus 2 tablespoons cake flour.1/2 teaspoons(2grams) salt.2 tablespoons(15grams) regular unsweetened or dutch processed unsweetened cocoa powder.2 large(100 grams)eggs,at room temperature.2 tablespoons(22 grams)liquid red food coloring.
